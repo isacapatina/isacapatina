@@ -12,5 +12,6 @@ Meu nome é Isabelle Capatina Dias
 
   @isaaa_capatina
 
-  ![](![image](https://github.com/user-attachments/assets/491872e6-7965-4588-990f-a2ad4fb51a0d)
+
+![](https://media1.tenor.com/m/GOabrbLMl4AAAAAd/plink-cat-plink.gif)
 
